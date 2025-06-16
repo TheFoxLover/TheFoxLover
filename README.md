@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hiya! I'm just your local fox fan on the Internet. 🦊
 
 <!--
 **TheFoxLover/TheFoxLover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
